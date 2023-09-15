@@ -5,3 +5,5 @@ Made by ohio_man02 & DJ Vector
 
 --------------------------------------------
 will be having constant updates
+
+# THE ASSETS WILL BE IN A ZIP FILE IN OUR DISCORD! (COMING SOON)
